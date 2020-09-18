@@ -14,6 +14,8 @@ Wszelkie kontrakty na powyższe inwestycje były rozstrzygane na zasadzie przeta
 
 Dodatkowo poprzez stały wzrost gospodarczy Polacy się wzbogacali a banki oferowały im nowe produkty, na przykład kredyty frankowe. Ludzie nieświadomi wahaniom kursowym obcych walut, zapewniani dodatkowo przez sprzedawcę produktu bankowego, który szkolony był aby sprawiał wrażenie przyjaciela i doradcy klienta, dbającego bardziej o interes klienta, a nie banku, zaciągali się na 30-letni kredyt. Niedole pojedynczych osób które w sumie stanowią 1,5 milionowy elektorat zostały wykorzystane przez ówczesną opozycję czyli partię Prawo i Sprawiedliwość (PiS).
 
+## "Zamach"
+
 W 2010 roku doszło do tragicznej katastrofy pod Smoleńskiem gdzie rządowy samolot z delegacją prezydenta Lecha Kaczyńskiego rozbił się przy podejściu do lądowania. Wszyscy wśród 96 osób na pokładzie ponieśli śmierć na miejscu. Brat Lecha Kaczyńskiego, Jarosław pogrążony był w smutku i żałobie. Cała Polska żyła przez pewien czas w żałobie. Polacy zjednoczyli się nad trumnami. Nad Polską znów czuwał duch solidaryzmu. Wszyscy płakali. Lechowi Kaczyńskiemu nadano nieśmiertelność stawiając wiele pomników, oraz nazywając parki, ulice i skwery jego imieniem. Wspólna żałoba nie trwała długo. W kilka miesięcy po katastrofie pojawił się problem krzyża który w trakcie żałoby został prowizorycznie ustawiony przed pałacem prezydenckim. Krzyż miał zostać przeniesiony do kościoła świętej Marii na Krakowskim Przedmieściu.
 
 Wtedy doszło do pierwszej polaryzacji społeczeństwa. Ludzie zostali podzieleni na obrońców krzyża oraz jego przeciwników. Pomimo, iż jestem katolikiem zostałem z automatu zaliczony do przeciwników krzyża ze względu na fakt, iż uważałem że kościół jest bardziej odpowiednim miejscem dla krzyża. Ktoś z otoczenia kierownictwa partii PiS postanowił wykorzystać tragedię smoleńską do celów politycznych. Powstawały hipotezy o zamachu smoleńskim. W środowiskach związanych z ówczesną opozycją mówiono wręcz o Donaldzie Tusku jako zleceniodawcy zamachu podczas spotkania z Władimirem Putinem na sopockim molo. Pierwsze skrzypce w kreowaniu teorii zamachu smoleńskiego grał Antoni Macierewicz, bliski przyjaciel Jarosława Kaczyńskiego. Temat ściągnięcia wraku samolotu z terytorium Federacji Rosyjskiej było jedną z obietnic wyborczych PiS wysuwanej w każdej kampanii wyborczej. Temat ten również był podawany jako dowód, iż ówczesna ekipa rządząca zleciła zamach i oddała śledztwo Rosjanom, oraz obawia się ściągnąć wrak aby zatuszować dowody wskazujące na ich winę.
@@ -32,6 +34,8 @@ Andrzej Duda był politykiem bez zaplecza i własnej ekipy. Po zaprzysiężeniu 
 
 Ludzie nie mogli wyjść z podziwu jak za pomocą niespełna 6 mln głosów można uzyskać bezwzględną większość w parlamencie w kraju którego ludność sięga prawie 38 mln. Taki efekt był konsekwencją systemu rozdziału mandatów oraz faktowi iż 1,1 mln głosów oddanych zostało na koalicję ugrupowań lewicowych, która nie przekroczyła 8% progu tak więc ich mandaty przeszły na partie zwycięską. Po tych wyborach rozpoczęła się totalna rewolucja.
 
+## Zamach na praworządność
+
 Prezydent nie zaprzysiągł wybranych przez poprzednią władzę sędziów do trybunału konstytucyjnego. Premier Szydło nie drukowała wyroków trybunału konstytucyjnego niekorzystnych dla rządu. Rząd stworzył Polską Fundację Narodową zasilaną szerokim strumieniem pieniędzy ze spółek skarbu państwa, które wytwarzają zysk kosztem obywateli (potentaci paliwowi, firmy energetyczne, ubezpieczeniowe oraz bankowe). Statut i cel fundacji stanowił o promowaniu wizerunku Polski za granicą, budowanie marki i promowanie polskiej gospodarki. Nie wiadomo dlaczego pierwszą głośną i dostrzeżoną za granicą kampanią była kampania oczerniająca polskie sądy. W zasadzie była ona skierowana do obywateli wewnątrz kraju ponieważ opierała się na billboardach rozstawionych na terytorium Rzeczypospolitej Polskiej, niemniej jednak była szeroko komentowana za granicą. Bilbordy wołały o sędzi który ukradł kiełbasę, oraz o innych pojedynczych incydentach z polskiego sądownictwa. Na ile prawdziwe były sytuacje przedstawione na billboardach nie wiadomo, ponieważ dziennikarze nie uzyskali odpowiedzi gdzie te przewinienia miały miejsce.
 
 Narracja rządu mówiła o sędziach jako o specjalnej kaście elit wyjętej spod prawa. Ludzi manifestujących w obronie sądów rząd wraz z telewizją publiczną wyzywał od obrońców pedofili i alimenciarzy lub per ubeckie wdowy. W powyższym stwierdzeniu o protestujących jest ziarno prawdy jednak podany jako pasek w portalu informacyjnym jest swoistą manipulacją. Te ziarno prawdy, to fakt iż w obronie stanęła Dorota Stalińska, broniąca polskiego reżysera Romana Polańskiego oskarżonego w USA o gwałt na nieletniej, oraz fakt iż dziennikarz Jacek Żakowski wspierał twarz KOD (Komitet Obrony Demokracji) Mateusza Kijowskiego który zalegał z alimentami.
@@ -46,16 +50,6 @@ Aby zapewnić sobie spokój przy tak agresywnie wprowadzanych reformach rząd dy
 
 Tak samo rząd oraz przedstawiciele inteligencji polskiej np. profesor Wolniewicz utożsamiali uchodźców wojennych z Syrii z terrorystami i zamachowcami. Co więcej na antenie telewizji TVP Info profesor ten upierał się przy tezie, że wszyscy terroryści to muzułmanie. Zaznaczając jednocześnie, iż nie mówi, że wszyscy muzułmanie to terroryści. Społeczeństwo zaczęło się bać. Zaczęliśmy się bać obcej kultury. Obcego języka. Poseł Kaczyński utożsamiał imigrantów z Półwyspu Arabskiego i Afryki ze źródłem zarazy, mówiąc o pierwotniakach zawleczonych z dalekich krajów które mogą być zabójcze dla naszej społeczności. To również przysporzyło PiS sporo zastraszonego elektoratu.
 
-
-
-<p id="gdcalert6" ><span style="color: red; font-weight: bold">>>>>>  gd2md-html alert: inline image link here (to images/image6.png). Store image on your image server and adjust path/filename/extension if necessary. </span><br>(<a href="#">Back to top</a>)(<a href="#gdcalert7">Next alert</a>)<br><span style="color: red; font-weight: bold">>>>>> </span></p>
-
-
-![alt_text](images/image6.png "image_tooltip")
-
-
-Źródło: [https://www.youtube.com/watch?v=rRXvzj2_-4o](https://www.youtube.com/watch?v=rRXvzj2_-4o)
-
 Prezydent miasta Gdańska ś.p. Paweł Adamowicz był takiej polityce przeciwny. Stał się osobą niebezpieczną dla naszej społeczności. Jeden ze spotów wyborczych PiS przedstawia apokaliptyczną wizję Polski opanowaną przez hordy imigranckich muzułmanów napadających na tle seksualnym na nasze kobiety[2]. Na pokazanej w spocie deklaracji na rzecz przyjęcia uchodźców widnieje podpis ś.p. Pawła Adamowicza. Pomimo brutalnej i ciężkiej walki wyborczej z wykorzystaniem aparatu państwa w postaci Centralnego Biura Antykorupcyjnego, które odwiedza prezydenta Gdańska przed kampanią samorządową, Adamowicz wygrywa kolejne wybory samorządowe.
 
 Mało kto potrafi sobie wyobrazić życie w postaci zarządcy miejskiego z prokuratorem, licznymi rozprawami sądowymi oraz agentami CBA na głowie, który musi zająć się kampanią wyborczą. Myślę że takiemu człowiekowi mało zostaje czasu dla rodziny. Ponoć takie jest życie samorządowca. Ze względu na szeroko zakrojoną akcję dyskredytacji również z wykorzystaniem telewizji publicznej. Ponad 100 materiałów wyemitowanych na antenie TVP przedstawiających Adamowicza jako barona pomorskiego klubu PO. Przeciw prezydentowi Gdańska, PO wystawiła swojego kandydata Jarosława Wałęsę.
@@ -64,13 +58,15 @@ Telewizja polska publikowała materiały wideo kompromitującego nie tylko Adamo
 
 Jednak są tacy dziennikarze koniunkturalni którzy w osobie Owsiaka widzą możliwość do bycia dostrzeżonym w internetowej blogosferze. I tak dziennikarz postanawia podliczyć cenę czynienia dobra. Zaczyna Owsiakowi zarzucać, iż czerpie on korzyści majątkowe ze zbiórki. Zarzuca mu że nic nie robi oprócz czynienia dobra i w dodatku nieźle z tego żyje. Zarzuca mu, iż Jurek chowa zebrane pieniądze w słoikach w swoim mieszkaniu. Jurek jest twardy. Nie poddaje się. Pomimo odwiedzających jego konferencję prasowe dziennikarzy koniunktóralnych, którzy aby zaistnieć w internecie zadaje pytanie, czy aby nie za dużo Jurek czerpał korzyści z czynienia dobra, rozbijając tym samym konferencję prasowe. Jurek działa aby zebrać pieniądze w szlachetnym celu. W tym roku tak jak zawsze wie, że w Gdańsku może zawsze liczyć na swojego przyjaciela Pawła Adamowicza, który jako wolontariusz zbiera pieniądze na szlachetny cel.
 
+## Zamach
+
 Godzina 19:55, w niedzielę 13 stycznia 2019 roku, na scenie z długim nożem w ręce w geście gloryfikacyjnym, z rękoma w górze niczym narodowcy na marszu niepodległości lub pseudo kibice na stadionie stoi on, Stefan W., zamachowiec. Gdyby nie biały kolor skóry nazywany byłby terrorystą. Prezydent Adamowicz leży w bezruchu z jego ciała ucieka krew. Krew sączy się dosyć szybko przez 3 otwory w jego ciele. Pierwszy otwór w sercu powoduje że serce zamiast pompować natlenowaną krew do mózgu, wypompowuje ją poza ciało. Pozostałe dwa otwory w jamie brzucha powodują znaczny spadek ciśnienia krwi. W kilka uderzeń serca Paweł leży już nieprzytomny. Mózg jest niedotleniony. Dusza Adamowicza uleciała do nieba wraz ze światełkiem WOŚP. Zamachowiec podchodzi do konferansjera mówiąc:
 
-“Daj mi mikrofon bo będziesz następny!”
+>“Daj mi mikrofon bo będziesz następny!”
 
  Z mikrofonem w ręku zwrócił się do zmrożonej trwogą publiczności. Na pierwszy rzut oka wyglądało to na jakiś happening. Ludzie stali, radosna muzyka leciała z nagłośnienia, nikt nie miał nawet siły krzyczeć. Zamachowiec przemówił:
 
-“Halo, halo, nazywam się Stefan Miłosz W., siedziałem niewinny w więzieniu! Platforma Obywatelska mnie torturowała, dlatego właśnie Adamowicz nie żyje!”
+>“Halo, halo, nazywam się Stefan Miłosz W., siedziałem niewinny w więzieniu! Platforma Obywatelska mnie torturowała, dlatego właśnie Adamowicz nie żyje!”
 
 Po tych słowach został obezwładniony przez pracownika technicznego który, nie chce aby nazywano go bohaterem. Zamachowiec sprawia wrażenie spokojnego, nie stawia oporu przy zatrzymaniu.
 
@@ -98,9 +94,11 @@ Ataki na sądownictwo w Polsce zaczęły się zaraz po przejęciu władzy przez 
 
 Co można robić w obliczu rodzącej się przemocy, gdy protestujący są ośmieszani, pogardzani i wyzywani. Trudno się zebrać na odwagę i dołączyć do ruchów broniących demokracji i praworządności. Gdy ktoś napada na demonstranta Komitetu Obrony Demokracji, kopie go i przewraca, co jest emitowane we wszystkich kanałach informacyjnych w kraju, rzecznik rządu udziela jednej z telewizji komentarza:
 
-“Nie pochwalam takiego zachowania, ale je rozumiem.”
+> “Nie pochwalam takiego zachowania, ale je rozumiem.”
 
 Cieszyć się, że rząd nie pochwala takich praktyk? Trzeba pamiętać że autorytaryzm w dowolnej postaci nadchodzi małymi krokami. Rząd nie pochwala, ale prokurator nie pochwala również uczestnika bójki dlatego na ławie oskarżonych o pobicie, obok napastników posadzono ofiarę. Warto pamiętać, iż władzę nad każdym śledztwem może przejąć prokurator generalny, czyli minister sprawiedliwości, czyli człowiek rządu. Czy minister nie pochwala takiego zachowania? O to niestety nikt nie zapytał. Czy prokurator nie pochwalał wieszania portretów polityków europarlamentu z klubu PO na szubienicach na rynku we Wrocławiu? Przez ponad rok śledztwo stało w miejscu. Prokurator przejął nad nim kontrolę dopiero po śmierci Adamowicza. W sądzie znalazł się akt oskarżenia. Warto wspomnieć, iż śledztwo toczyło się w sprawie a nie przeciwko osobom. Gdy prokuratura dostała wszelkie dowody, próbowała torpedować śledztwo poprzez zwrócenie się do Policji o uzupełnienie materiału dowodowego o zeznania świadków. Czy prokurator nie widział na dostarczonym materiale wideo co się wydarzyło na rynku we Wrocławiu? Tutaj nóż został wbity w samo serce rządu, w aparat wysuwania oskarżeń, czyli prokuraturę.
+
+## Winna ofiara
 
 Prokuratura prowadzi śledztwo w kierunku kierowania gróźb karalnych. Nikt nie będzie zadawał pytań dlaczego narodowcy postanowili zorganizować taki happening. Wszak portrety wiszące na szubienicach to europosłowie nazwani przez PiS targowicą. Ta obelga motywowana była tym, że europosłowie zagłosowali za wszczęciem procedury sprawdzania praworządności w Polsce. Czy rząd uważa to za zagrożenie? Czy rząd obawia się że KE stwierdzi brak praworządności w Polsce? Jak policja zatrzyma mnie do kontroli to nie obawiam się otworzyć bagażnika, bo wiem że nie ma tam nic co mogłoby mi zagrażać. Czy Polski rząd nie jest pewny wyniku stosowanej procedury?
 
@@ -122,6 +120,7 @@ Pomimo iż w każdym niemal mieście w Polsce odbył się marsz milczenia przeci
 
 Nóż dosięgnął również samego prezesa Kaczyńskiego oraz jego partii. Gdy w sejmie okazano szacunek zmarłemu Pawłowi Adamowiczowi poprzez minutę ciszy, prezes nie był obecny na sali. Okazując tym samym brak szacunku dla zmarłego. Czy to są wartości chrześcijańskie o których mówi PiS gdy straszy nas zalewem islamu? Czy może to są wartości wyznawane przez członków rodziny Radia Maryja. Szkoda że nie wszyscy tak mocno kochamy rodzinę Radia Maryja tak jak nasz kochany rząd, może miałbym wtedy więcej zrozumienia.
 
+## Koniunkturalni "dziennikarze"
 Rzeczniczk rządu udzielił wywiadu zaprzeczając, iż ich nieobecność w sejmie w trakcie minuty ciszy była celowa. Jeśli nie była celowa, to dlaczego prezes Kaczyński nie zadzwonił do marszałka Kuchcińskiego z prośbą o poczekanie 3 min na spóźnionych parlamentarzystów, tak jak ma to w zwyczaju gdy w sejmie są ważne dla niego głosowania? Telewizja Republika też nie mogła tego zrozumieć. Dlatego do artykułu o minucie ciszy zamieściła zdjęcie gdzie w ławach sejmowych zasiadał nie kto inny, jak wcześniej wspomniani spóźnialscy. O nieobecności prezesa Telewizja Republika nie wspomina w swoim newsie. Gdy zostało to dostrzeżone i wyśmiane przez internautów, grafikę zmieniono na taką gdzie widoczne są puste ławy posłów PO. Aby później zmienić ją na grafikę przedstawiające sejm z zewnątrz.
 
 Niektórych niegodziwości nawet najbardziej koniunkturalni dziennikarze nie są w stanie wytłumaczyć i usprawiedliwić. Trochę lepiej poszło Kurskiemu, prezesowi TVP. Wieczorne wydanie wiadomości w dzień śmierci Adamowicza poświęcone było mowie nienawiści. Jako przykłady pokazano jedynie wypowiedzi polityków opozycji. Natomiast dziennikarzy koniunkturalnych odpowiedzialnych za kreowanie obrzydliwego wizerunku Jurka Owsiaka zawieszono, robiąc z nich kozłów ofiarnych. Dziennikarze koniunkturalni powinni wiedzieć, że o ich losie decyduje aktualna koniunktura a nie ich warsztat dziennikarski.
@@ -135,21 +134,6 @@ Sam komunikat SW jest wewnętrznie sprzeczny. Zdanie jest logicznie fałszywe. S
 Dziennikarze koniunkturalni zaczęli przekonywać iż to PO jest w równej mierze odpowiedzialna za zamach. Ponieważ też używa języka nienawiści. To prawda. Dlatego mówi się mądry Polak po szkodzie. Z tym że w tym przypadku okazuje się że Polak nie taki mądry. Ponieważ już 7 lat temu doszło do mordu politycznego gdy inny szaleniec wpadł z bronią do łódzkiego biura PiS i wymordował nie jedną, nie dwie, a trzy osoby. Wtedy mówiono, że było to inspirowane wypowiedzią ministra Radosława Sikorskiego, który w kampani wyborczej między I a II turą wyborów samorządowych, mając już dużo przyczółków zdobytych, użył sformułowania “Trzeba dorżnąć watahę”. Niewykluczone, iż zamach na Rosiaka był inspirowany tą konkretną wypowiedzią. Radosław Sikorski przeprosił za swą wypowiedź. Jednak jak widzimy nic się nie nauczyliśmy z tamtej bolesnej lekcji. Tamta władza minęła i już raczej ma małe szanse na powrót. Jednak nowa władza uznała, iż siłą, przemocą legislacyjną, oraz oszczerstwami i pomówieniami pod adresem osób niepokornych władzy  można więcej zyskać. Obecny rząd nawet nie ma odwagi wziąć na siebie odpowiedzialności za przeprowadzane reformy. Odpowiedzialność jest przez rządzących zrzucana na barki suwerena, mówiąc taka jest wola suwerena.
 
 Suweren musi się obudzić. Suweren musi dokonać mądrych wyborów. Co jeśli nowa władza będzie jeszcze bardziej brutalna, jeszcze bardziej okrutna? Suweren musi mieć ciągłą kontrolę nad rządzącymi. Jeśli widzimy niesprawiedliwość, niegodziwość, rujnowanie Państwa musimy na to reagować. Musimy protestować. Władza bez kontroli prędzej czy później przechodzi w rządy autorytarne. Takich sytuacji w historii świata było tyle, że dziś mamy te same demony pod różnymi nazwami: bolszewizm, komunizm, stalinizm, faszyzm, nazizm itd. Nie pozwólmy aby śmierć prezydenta Gdańska Pawła Adamowicza została zapomniana, nie możemy stracić tak ważnej lekcji o życiu w niezdrowym społeczeństwie.                                
-
-
-##
-
-<p id="gdcalert7" ><span style="color: red; font-weight: bold">>>>>>  gd2md-html alert: inline image link here (to images/image7.png). Store image on your image server and adjust path/filename/extension if necessary. </span><br>(<a href="#">Back to top</a>)(<a href="#gdcalert8">Next alert</a>)<br><span style="color: red; font-weight: bold">>>>>> </span></p>
-
-
-![alt_text](images/image7.png "image_tooltip")
-
-
-<p id="gdcalert8" ><span style="color: red; font-weight: bold">>>>>>  gd2md-html alert: inline image link here (to images/image8.png). Store image on your image server and adjust path/filename/extension if necessary. </span><br>(<a href="#">Back to top</a>)(<a href="#gdcalert9">Next alert</a>)<br><span style="color: red; font-weight: bold">>>>>> </span></p>
-
-
-![alt_text](images/image8.png "image_tooltip")
-
 
 Gdańsk
 
